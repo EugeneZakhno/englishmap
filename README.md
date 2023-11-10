@@ -1,1 +1,1 @@
-https://eugenezakhno.github.io/englishmap.github.io
+https://eugenezakhno.github.io/englishmap
